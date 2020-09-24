@@ -8,7 +8,9 @@ Nationality and political factors will not influence this project. We are workin
 For Chinese users who got banned in our groups due to this incident, please contact @AkitoHaruka in Telegram.
 
 Akito Mizukito
+
 Evolution X Project Manager and Public Relation
+
 Haruka LLC.
 
 #KeepEvolving
@@ -24,7 +26,9 @@ Haruka LLC.
 对于在 Telegram 上的相关群组被封锁的用户，请在 Telegram 上联系 @AkitoHaruka。
 
 Akito Mizukito
+
 Evolution X 项目经理既公关
+
 Haruka LLC.
 
 #KeepEvolving
